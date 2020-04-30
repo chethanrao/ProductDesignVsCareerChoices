@@ -8,7 +8,10 @@ One could also see how honda succeeded while iridium failed. Honda was so financ
 the begining but rather they have money left over after the original strategy fails. You can imagine this like a side 
 of a rectangle that got bigger before its breadth got increased as a result the area of the rectangle
 that is the cash burn increased due to the wrong idea. Every idea needs to be unit tested with proper data before 
-moving it into production.
+moving it into production.Lot of these apply to one's life as well. Is it easier to change one's behaviour when the person
+is a child or when a person is an adult? children need to be given more attention when they are small so that they can
+create positive impact to the world when they become adults.Parents need to be at the right place at right time to make the
+right positive impact.
 
 Citations:
 Clayton M. Christensen, How will you measure your life?
