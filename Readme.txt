@@ -9,3 +9,6 @@ the begining but rather they have money left over after the original strategy fa
 of a rectangle that got bigger before its breadth got increased as a result the area of the rectangle
 that is the cash burn increased due to the wrong idea. Every idea needs to be unit tested with proper data before 
 moving it into production.
+
+Citations:
+Clayton M. Christensen, How will you measure your life?
