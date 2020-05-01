@@ -13,9 +13,7 @@ is a child or when a person is an adult? children need to be given more attentio
 create positive impact to the world when they become adults.Parents need to be at the right place at right time to make the
 right positive impact.
 Many companies including dell have pursued the strategy of outsourcing as a part of short term solutions to increase profits without considering long term implications. Now companies likes asus learnt the business and are able to offer all the 
-outsourced products from bottom to top. Many suppliers in Taiwan,Korea,Singapore and china have developed capabilities to make
-products from american customers.The core capabilities to succeed in the future should not be shared with the suppliers or 
-outsourcing companies.
+outsourced products from bottom to top.Hardware business is generally like commodity business. Generally commodity business has low margins and need to have huge volumes to make profits. Clearly suppliers in south east asia have cost advantage due to low labour costs(which is though currently increasing slowly).  Many suppliers in Taiwan,Korea,Singapore and china have developed capabilities to make products from american customers.The core capabilities to succeed in the future should not be shared with the suppliers or outsourcing companies.
 
 Citations:
 Clayton M. Christensen, How will you measure your life?
