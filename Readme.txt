@@ -15,6 +15,9 @@ right positive impact.
 Many companies including dell have pursued the strategy of outsourcing as a part of short term solutions to increase profits without considering long term implications. Now companies likes asus learnt the business and are able to offer all the 
 outsourced products from bottom to top.Hardware business is generally like commodity business. Generally commodity business has low margins and need to have huge volumes to make profits. Clearly suppliers in south east asia have cost advantage due to low labour costs(which is though currently increasing slowly).Many suppliers in Taiwan,Korea,Singapore and china have developed capabilities to make products from american customers.
 The core capabilities to succeed in the future should not be shared with the suppliers or outsourcing companies.
+Similarly with children we as parents must control what we would like to outsource to others? Sending your kids to music classes,swimming,karate classes,sanskrit classes all sound good right? Does the kid enjoy going to these clasess? is your kid developing the right processes to succeed? is he being challenged enough so that he can develop the self esteem to succeed in the future? is he able to attain the hard to get properties of resilence when he falls down? Can he  get
+up on his own and walk forward in his life? Combine this with karma now..parents got to do their part and leave the rest to
+god? The three aspects that form a child are resources,processes and priorities as in any company.
 
 Citations:
 Clayton M. Christensen, How will you measure your life?
